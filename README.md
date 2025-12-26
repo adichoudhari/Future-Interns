@@ -1,4 +1,4 @@
-# Future Interns – Cybersecurity Internship
+# Future Interns –- Cybersecurity Internship
 
 ## 👤 Intern
 **Name:** Aditya Choudhari  
